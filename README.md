@@ -1,2 +1,2 @@
 # Dont-hit-him
-https://docs.google.com/document/d/e/2PACX-1vRSslsgwXylV24Jjw19kSd7G3eYrD2POfcgIDWuc-xV2bS7QR_P3Z4Nndx_tSQCSXzN1iQGIpLnpNzQ/pub 
+https://docs.google.com/document/d/1TcHbZo2c7SY3lPBav8opT6yt10eBLCR37IBV7Zc0ycA/edit?usp=sharing 
