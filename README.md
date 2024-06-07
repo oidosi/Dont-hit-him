@@ -1,2 +1,2 @@
 # Dont-hit-him
-In my game there are 2 cars a blue and red one and they are trying to avoid bumping the walker and the walker keeps getting faster overtime
+https://docs.google.com/document/d/1C6T0k8ns-90kt2mmejPQfVKC2lIGkEhVhhw_fXZ5yrw/edit?usp=sharing 
